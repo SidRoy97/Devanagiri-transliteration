@@ -1,1 +1,1 @@
-Transliteration of Deanagari script
+Transliteration of Devanagari script
